@@ -21,23 +21,43 @@ Location:
 Also on Zoom Meeting ID: 859 9038 6760 Passcode: email me
 
 Next Lectures: 
+
 Tuesday, March 1, 2022 - 14:00 to 17:00
+
 Wednesday, March 2, 2022 - 14:00 to 17:00
+
 Tuesday, March 8, 2022 - 14:00 to 17:00
+
 Wednesday, March 9, 2022 - 14:00 to 17:00
+
 Tuesday, March 15, 2022 - 14:00 to 17:00
+
 Wednesday, March 16, 2022 - 14:00 to 17:00
+
 Tuesday, March 22, 2022 - 14:00 to 17:00
+
 Wednesday, March 23, 2022 - 14:00 to 17:00
+
 Tuesday, March 29, 2022 - 14:00 to 17:00
+
 Wednesday, March 30, 2022 - 14:00 to 17:00
+
 Tuesday, April 5, 2022 - 14:00 to 17:00
+
 Wednesday, April 6, 2022 - 14:00 to 17:00
+
 Tuesday, April 12, 2022 - 14:00 to 17:00
+
 Wednesday, April 13, 2022 - 14:00 to 17:00
+
 Tuesday, April 26, 2022 - 14:00 to 17:00
+
 Wednesday, April 27, 2022 - 14:00 to 17:00
+
 Tuesday, May 3, 2022 - 14:00 to 17:00
+
 Wednesday, May 4, 2022 - 14:00 to 17:00
+
 Tuesday, May 10, 2022 - 14:00 to 17:00
+
 Wednesday, May 11, 2022 - 14:00 to 17:00

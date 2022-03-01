@@ -1,1 +1,1 @@
-Here you find the recodings of the lectures.
+Please ask me the link to the recodings of the lectures.
